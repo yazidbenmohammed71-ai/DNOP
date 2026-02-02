@@ -1,5 +1,5 @@
 <head> 
-<meta name="google-site-verification" content="v3UI-oW6_rc338s9YyMYeHH8KU3l9WQxREucCLpa7XM" />
+google-site-verification: googlef1e8386bcf8eaa06.html
 <head>
 
   <title>Drainage post-op Nadia | Annecy</title>
